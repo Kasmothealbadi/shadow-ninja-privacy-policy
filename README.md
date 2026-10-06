@@ -1,0 +1,1 @@
+# shadow-ninja-privacy-policy
